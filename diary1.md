@@ -21,4 +21,5 @@ One of the podcaster published 4 books and is around 30 years old. I feel a smal
 ### confort
 Interestingly I keep an eye on my physical confort. Like how and where I sit. This is stupid but I might have underestimated this aspect in my life. Not sure it's a stoic goal to seek confort. Nevertheless I feel ok with considering this.
 
-s
+### order
+I feel I want to make order in my life. Physically I have an unusal will to fix some problems and order files on my physical and computer desk. I have not done much but felt a subtle difference. This can be the result of other factors than previous readings like return from holidays.
