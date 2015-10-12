@@ -37,3 +37,6 @@ This morning, I thought on one of my most penible emotionnal experience and reth
 
 ### Night visualisations
 I listened this morning and yesterday evening the mp3 files. Interesting to say the least that the root of some meditation exercices come from pythagoras. Also interesting that he used mental review also to better enhance memory. Here is then the guy who first wrote about mental review and free recall (one of my favourite learning techniques). Returning to stoic. I failed to review my day completely. Lack of time, consumed partly by listening the mp3. Got sleepy to early. I should try later. Quite the same for the morning exercice. I will have better occasions.
+
+## ColdTurkey
+I finally chose to install a website blocker on my new computer. The goal is to extenguish the 9gag/facebook reflex. During my last periode of work on my old cpu, this worked well. But somehow old routines started to show up again. I should give a try again. The dependance of these tools should be thought. From a complete stoic view, I should be able to avoid their use. 
