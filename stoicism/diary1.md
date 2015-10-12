@@ -56,3 +56,6 @@ I am wondering what is the stoic nature the attention of the present moment that
 
 ### paradox of writing this diary
 At this time, I feel good. I think a lot, practise honesty with myself. Asking me open questions without fill or jumping the gap in a hurry. But, in some sense, I feel enslave. This is similar to other greedy projects of mine, interrupting my serious business because I can't avoid thought on it. Should this diary the only exception ? Good question, as it provides me the tool to fight this ADHD-like of mine. But it kind of sounds like I go to anonymous alcoholic being *not* sober. Let's accept this state of exception of this diary for the moment. This might be only the first kiss with a new lover. Getting his mind occupied to it is acceptable for the first dates. I should keep in mind that this diary must be wrote in a calm spirit not an excited one to avoid soiling its soul.
+
+### intellectual stimulation
+Since very young I looked for intellectual stimulation, more throughfully than my peers I think. "intellectual" goes well with stoicism, "stimulation" less likely. Stimulation is like heat source for a frozen body. Without stimulation, common sense portrait you as a zoombie. I might need to avoid this dissociation. The normal state should not be boredom waiting merriment. The contentment must be there from the departure.
