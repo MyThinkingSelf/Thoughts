@@ -59,3 +59,7 @@ At this time, I feel good. I think a lot, practise honesty with myself. Asking m
 
 ### intellectual stimulation
 Since very young I looked for intellectual stimulation, more throughfully than my peers I think. "intellectual" goes well with stoicism, "stimulation" less likely. Stimulation is like heat source for a frozen body. Without stimulation, common sense portrait you as a zoombie. I might need to avoid this dissociation. The normal state should not be boredom waiting merriment. The contentment must be there from the departure.
+
+### Ex s.o success.
+I lost my calm thinking about the success of my first love. I hate having these negative feelings and would have prefer feel good about my ex. This is really a matter of comparison with my own success. This is SO NOT stoic for many reasons. Success is not a goal in itself. Jealousy is a sad passion. This feeling is also ill-grounded (I want to be better than my ex)
+It does not deal with my life. Also, as epictetus said (if I remember well Irvine) only my judgement causes me pain. So, it's wrong on so many regards, and oppositely it provides me strong emotional responses. This is a case to meditate. When thought experiences on this matter would not affect my tranquility, I could say that an important milestone would have been reached.
