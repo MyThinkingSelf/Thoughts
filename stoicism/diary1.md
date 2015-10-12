@@ -1,4 +1,5 @@
-Stoicism journal
+# Stoicism journal
+Starting a diary mixing thoughts, interrogations and progress on the path of a philosophy of life.
 ## 11/10/2015
 ### current readings
 Finished to read the book of Irvine, and discovered I read it during the stoic week (funny isnt it ?). I appreciated it a lot, from many facets (practical, personnal, non scholar, still a bit scholar to patch things up at the end). I don't see how it could have been better. But despite the 40 first letters of Seneca (to Lucilius) I don't know much else about stoicism. 
