@@ -76,3 +76,10 @@ Fame and money should not be my primary interest. It was not until I discovered 
 ### anxiety today
 I felt anxious about stupid things today (like a not-liked facebook post, this is hard to admit but this is the place to admit it). Maybe more than usual. This is not a promise of stoicism. It can be explained by many things other than the start of my stoic journey. But it could also be related. By being more analytical, I tend to overthink stupid things. This reminds me Seneca who gave its mixed feelings about isolation citing another philosopher "take care to not be with a bad personn" adressed to someone who claimed to want to spend time with himself. This sound a realistic side effect that without a stronger stoic mind, thinking more can be harmful. It's like going to war naked with a toy-sword. Then, how to be better armed before launching fights. Maybe more meditation exercices, negative vizualisation and less (or no) during-day analysis for the moment is a counter measure if I think that the problem is real.
 
+## 13/10/2015
+
+### lack of sleep
+These thoughts today : "much of my lack of energy and bad mood may be due to my lack of sleep, I should fix it instead of fixing my state of mind". Then I realized that this may be seen in another way. On an Sq perspective, I should be able to deal with the lack of sleep. Stoicism relies partly on virtual/real training. Being able to stand lack of sleep is an opportunity honorable goal. Sleeping enough is not sthg I can totally control, then I should protect myself against this.
+
+
+
