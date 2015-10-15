@@ -96,3 +96,9 @@ Stoic readings makes me look at personal development (bullshiting or enlighten) 
 
 ### moods
 Still wired to a day-to-day mood. Yesterday I felt anxious. As a result I behave wrongly. Today, stuff went well. As a result I feel good. The funny thing is that yesterday was anxious of this day. 
+
+### spiritual exercices and method of Loci
+The mp3 I downloaded are interesting. I listened few of them and tried to practice. But these spiritual exercices contain a reduced portion of stoicm precepts. I would like to try something in complement. I want to store some stoicms precepts as mental images and memorize with the ancient greek technique called the method of loci. I see two benefits. The first one is to have a sort of mental handbook. The second is, by the use of vivid and emotional mental images, be touched by the precepts in a more deep way that just knowing them. Let's create a list. I want to target around 100 precepts.
+
+### ego, still ego
+I realize how far ego is engrained in my mind. Reading people commenting stoicism litterature, I suspect that I have this thought at the back of my head : "I can do a better job than them" or this one, from the same nature "I won't be able to do a better job than them". Conjointly, I may have a big distrust in what people comments. Measuring myself up to my peers brings me all sort of negative (sometimes positive) emotions. This must be an area of important investigation. Should I look into buddhism philosophy as well ? It seems it's an important aspect of their philosophy.
