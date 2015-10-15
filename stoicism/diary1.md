@@ -91,3 +91,8 @@ Much of my current thoughts, surprisingly, are more inline with an enlighten end
 
 ### lifehacker
 Stoic readings makes me look at personal development (bullshiting or enlighten) differently. Advices are generally tailored for goal achieving. How to run faster in our race in other terms. At night, they suggest to use *positive* visualization in order to better visualize success and then reach it. One funny thing, this morning is the post of lifehacker on my feed. "Ask for Time to Think Immediately After Receiving Negative Feedback". As I thought on negative feedbacks lately, this brought my attention. The article, however, does not suggest to build a mind whose tranquility is not threaten by eventual negative feed-backs. But, more simply, suggest to take time to avoid unecessary confrontation. This is a simple and wise recipe. But a Stoic may point out that without a quiet mind, more time is not that helpful and form some people, it could even be worse.
+
+##  15/10/2015
+
+### moods
+Still wired to a day-to-day mood. Yesterday I felt anxious. As a result I behave wrongly. Today, stuff went well. As a result I feel good. The funny thing is that yesterday was anxious of this day. 
