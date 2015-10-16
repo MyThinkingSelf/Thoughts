@@ -116,3 +116,6 @@ This morning I have been touched this idea from Seneca. Today, I am offered at l
 
 ### soilent
 I started to listen the podcast painted torch. One guy talked about soilent, 20 sec later when I met my friend to eat, one of his colleagues makes fun of him for his new culinary habit : soilent. I do not weigh coincidence more than the reason authorizes me to do so, nevertheless, it's fun. He gave me a 3-dose portion to try it. 
+
+### chained mental images, shut perfectionnist state
+I prepared a chain of seven mental images (more like dynamic situations) to rehearse stoicism. This was fun to produce. Will I have the mind to practice them. I like to build. I shall learn to like to use what I build. For this purpose, I reduced the scope of the project (I intially planed 100 images). My perfecionnist self started to complain about many things that could improve the project. I shut his mouth and force me to produce in a limited time something I could test today. I discarded some candidate images to keep it simple. This was a good move that I should work to be able to make again.
