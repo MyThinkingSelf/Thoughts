@@ -107,3 +107,12 @@ I realize how far ego is engrained in my mind. Reading people commenting stoicis
 
 ### easy detectable frustrations
 I am this kind of individual who goes on a divertisement website (facebook/9gag) almost deterministically (even for a few sec) if I have a discontentment or get bored. There seems to be an advantage of this behavior. I can detect and then inspect why I have a discontentment.
+
+### meeting
+I took to heart the principle to eat with people avoiding frivolous discussion subject. Also, I went there with the principle to go with the second goal of epictetus (in the handbook, with the example of bath) that my second goal was to "act according the nature" which means, to me, "act like a stoic". I think I did well. I reminded myself some precepts of stoicism and try to keep my ego in check. Someone eventually went onto some pseudo-scientific theories. I did not intervene, talking about the place of scientific method. Instead I listened. His experience was interesting, and I am glad I let him talk. I don't really remember how and why I acted like a stoic. But I was a bit more mindful and attentive to others than usual. I think I talked less than usual.
+
+### morning
+This morning I have been touched this idea from Seneca. Today, I am offered at least 13h of life, that's kind of cool, let's try to not waste it. I may have waste a part, but another part was appreciated.
+
+### soilent
+I started to listen the podcast painted torch. One guy talked about soilent, 20 sec later when I met my friend to eat, one of his colleagues makes fun of him for his new culinary habit : soilent. I do not weigh coincidence more than the reason authorizes me to do so, nevertheless, it's fun. He gave me a 3-dose portion to try it. 
