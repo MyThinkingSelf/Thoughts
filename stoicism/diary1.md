@@ -102,3 +102,8 @@ The mp3 I downloaded are interesting. I listened few of them and tried to practi
 
 ### ego, still ego
 I realize how far ego is engrained in my mind. Reading people commenting stoicism litterature, I suspect that I have this thought at the back of my head : "I can do a better job than them" or this one, from the same nature "I won't be able to do a better job than them". Conjointly, I may have a big distrust in what people comments. Measuring myself up to my peers brings me all sort of negative (sometimes positive) emotions. This must be an area of important investigation. Should I look into buddhism philosophy as well ? It seems it's an important aspect of their philosophy.
+
+##  16/10/2015
+
+### easy detectable frustrations
+I am this kind of individual who goes on a divertisement website (facebook/9gag) almost deterministically (even for a few sec) if I have a discontentment or get bored. There seems to be an advantage of this behavior. I can detect and then inspect why I have a discontentment.
