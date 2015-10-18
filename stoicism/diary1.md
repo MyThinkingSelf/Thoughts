@@ -119,3 +119,14 @@ I started to listen the podcast painted torch. One guy talked about soilent, 20 
 
 ### chained mental images, shut perfectionnist state
 I prepared a chain of seven mental images (more like dynamic situations) to rehearse stoicism. This was fun to produce. Will I have the mind to practice them. I like to build. I shall learn to like to use what I build. For this purpose, I reduced the scope of the project (I intially planed 100 images). My perfecionnist self started to complain about many things that could improve the project. I shut his mouth and force me to produce in a limited time something I could test today. I discarded some candidate images to keep it simple. This was a good move that I should work to be able to make again.
+
+##  18/10/2015
+
+### Epictetus bath.
+The passage where epitectus wrote about the decision to go to public baths despite its possibile inherent trouble resonated with me. I call this technique "goal adjunction". Your second goal is to keep a stoic mindset. I went to 2 places today, and thought a lot about the goal and the stoic goal. This worked. More specifically I managed to keep my ego in check in places where I tends to let him taking control.
+
+### thinking place
+One place I went was a public space of philosophical discussions. I did not intended to talk because I wanted to avoid ego stuff. But, strangely enough, it was about a subject very important for stoicism. So I talked a little bit on this subject. Each time I talked, I mentionned that I was not a specialist and many people here should now more. Maybe it's wrong and nobody knew stuff about stoicism. But, anyway, taking a naive position was very confortable. Another thing is that I took much time to listen to what people say and to ponder it before answering. I was more calm than usual. Not overly excited in the face to face relationship.
+
+### stoicism today
+One thing that struck me was how non-stoic was the approach of people on this subject. None of the guys involved brought up stoic ideas about losing things. Paradoxally, this may be the reason why stoicism get more adepts. When ones discover about stoicism, this is a mindshift in this modern way of thinking life. Maybe.
