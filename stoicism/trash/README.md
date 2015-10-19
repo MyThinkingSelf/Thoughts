@@ -1,0 +1,1 @@
+# Unclear mix of ideas, and broken langage (mixing french and english). This is not made to be readable. 
