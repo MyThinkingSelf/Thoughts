@@ -49,4 +49,13 @@ The relation that Nietzsche have with stoicism seems complex. I am reading a pap
 
 I see the author has written a book and contributed to another on this subject. This has good chance to be on my reading list. 
 
+### elogious portrait of epictetus...by Nietzsche.
+Michael Ure reports the distinction between human and cosmic stoicism brought up by John Sellars. Interesting distinction btw. He writes that "human stoicism" fits exactly the portrait of Epictetus written by Nietzche. Strangely enough, The Dawn is not on wikisource. But some sources are available elsewhere (scans and text recognition) like here  https://archive.org/stream/cu31924021569177/cu31924021569177_djvu.txt The passage is 546, but OCR worked badly and turned the 5 in S so ctrl+F "S46" to get it. The portrait is ellogious. He depicts that Epictetus is free from god and believes in reason only which distinguishes radically from christianism. He his not an idealistic and has already found solid joy :
+> Epictetus, on the other hand, neither hopes nor allows his best treasure to be given him — he possesses it already, holds it bravely in his hand, and defies the world to take it away from him
+
+### Dawn Nietzsche
+I never read Dawn. More specifically, I think it is with birth of tragedy the sole book I did not read from him. Good for me as it's the right time for me to read it. According to Michael Ure, it's written under the direct influence of epictetus. Indeed, the few passages refered by Michael Ure are an interesting mix between the Nietzsche I know and Stoicism. This is then an interesting read that awaits me. I shall continue to read Ure to see how and why the departure from stoicism has been made by Nietzsche. 
+
+### Nietzsche failed to find an alternative to Stoicism
+This is the claim of Michael Ure. After The Dawn Nietzsche wants to develop an alternative where passions and pain is valuable. According Ure, he failed to do so. By taking the stance of the amor fati and the eternal recurence of the same which is close to stoic concepts, he simply left his "human stoicism" for a "cosmic stoicism. This cosmic aspect, according Ure, do no allow more space for passion and pain. I am not sure to get exactly the argument why it is, but the main argument seems to be that Nietzsche did not provide any convincing one. Eternal return of the same leads to stoic apathea. I found this paper very convincing but it would be valuable to confront this hypothesis. 
 
