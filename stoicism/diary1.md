@@ -2,7 +2,7 @@
 Starting a diary mixing thoughts, interrogations and progress on the path of a philosophy of life.
 ## 11/10/2015
 ### current readings : Irvine and Seneca
-I finished to read the book of Irvine, and discovered I read it during the stoic week (funny isn't it ?). I appreciated it a lot, from many facets (practical, personnal, non scholar, still a bit scholar to patch things up at the end). I don't see how it could have been better. But despite the 40 first letters of Seneca (to Lucilius) I don't know much else about stoicism so I can't really know how it could have been better.
+I finished to read the book of Irvine, and discovered I read it during the stoic week (funny isn't it ?). I appreciated it a lot, from many facets (practical, personnal, non scholar, still a bit scholar to patch things up at the end). I don't see how it could have been better. But despite the 40 first letters of Seneca (to Lucilius) I don't know much else about stoicism so I can't really know how it could have been better. Edit : It seems I took octobre for novembre. Well Stoic week is yet to come. I just registered.
  
 ### angry for that ?
 I discovered I was too often angry (even during a very brief moment) against participants in philosophical podcasts I listened. I routinely produce negative comments out loud. I have various hypothesis on why that should be investigated futher. In the meantime, I decided to stop listening for today.
