@@ -61,3 +61,7 @@ This is the claim of Michael Ure. After The Dawn Nietzsche wants to develop an a
 
 ### live in agreement with nature (fun)
 As I understood, this idea has various aspects. But concerning emotionnal aspect everytime I read it I have a mental image at the back of my had. A small river in a green space. Am I alone ? While it does not really cover the complexity thoughts behind this expression, it has an emotionnal aspect sounding like "This rivers flow, Stay calm dude".
+
+### Becker and "following nature"
+Today Massimo posted an interesting highlight on Becker book. This is one amongst others. Becker reduce the "live in agreement with nature" with something close to "understanding and accept how nature works". The argument for this modern form is that ancient stoics did not have a better science than a teleological conception of nature. It sounds right to me, and if I am not wrong it was a popular conception at the time. But, in the same time, a teleogical conception go very well with a philosophy of acceptation. Maybe I am influenced (I could drop the maybe here) by my recent read, but the passage from human stoicism to cosmic stoicism makes sense. If one wants to accept past events and future, the best metaphysical support is one where things could not have been otherwise.
+
