@@ -63,7 +63,7 @@ Epictète Arena ; At the end : you are now in the arena
 
 ## MYLIST
 *****
-(1) Epictete nous donnent deux boules (blue&red, gold), you pick the blue and red, you feel invincible. Start the journey. Donne un sablier. Lorsque serré, il permet de ralentir radicalement le temps pour pouvoir analyser. Lorsque incadescent il permet de le ralentir pour apprécier les choses.
+(1) Epictete nous donnent deux boules (blue&red, gold), you pick the blue and red, you feel invincible. Blue Sphere of control. Start the journey. Donne un sablier. Lorsque serré, il permet de ralentir radicalement le temps pour pouvoir analyser. Lorsque incadescent il permet de le ralentir pour apprécier les choses.
 
 (2) Flow, loosing gold stuff, desirer les choses telles qu'elles arrivent par un hochement de tête. Regarder les choses derrières nous par le même hochement de tête. Transporté par un vent chaud. Gain d'une bourse. Perte d'une même bourse. Plat qu'on prend et laisse passer. Faire taire un aplaudissement et refuser un bien.
 
