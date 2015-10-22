@@ -41,3 +41,11 @@ I read the chapter 5 of Robertson book. I don't understand many things :
 - How a stoic can love (especially non-stoic people) ?
 At the present time, I am not convinced. I tend to prefer building strong friendship than to feel a bound with the whole world. I feel more Nietzchean than stoic on this subject. Caring about everyone seems too heavy. Maybe in a sense of esthetic. Finding everyone appreciable seems wise to me. But caring about people as myself, this sounds crazy. I am glad to capture this thought as there are good chances that my mind changes on the relation between this kind of christian love and stoicism.
 
+## 22/10/2015
+
+### Nietzsche, Stoicism and Michael Ure. First contact.
+The relation that Nietzsche have with stoicism seems complex. I am reading a paper of Michael Ure. "Nietzsche's Free Spirit Trilogy and Stoic Therapy". I like the writing style which goes straigth to the point. Power is conceived as the central theme that animates Nietzsche therapy and its relation with others. One passage amongst others that stroke me : 
+>According to Nietzsche, all these interpretations are therapies that address the affective states the human animal experiences when it discovers that the external world is beyond its control. For Nietzsche emotions derive from and register our evaluation of our power to shape or control the external world; the negative affects (fear) register a perceived lack of power. He assumes that once the human animal recognizes that the external world is not within the scope of its control, it seeks or invents means by which it can reclaim a feeling of power. Nietzsche first introduces his (in)famous notion of power, then, not as a meta-physical belief, or as a normative principle, but as a psychological hypothesis for explaining the origins and development of those cultural forms human beings have created in order to endure vulnerability. 
+I see the author has written a book and contributed to another on this subject. This has good chance to be on my reading list. 
+
+
