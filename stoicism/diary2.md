@@ -73,3 +73,13 @@ A discussion on reddit allowed me to be more clear with myself concerning my pos
 
 This is clearly a half-comfortable proposition. But in the same time, it is in agreement with both my relativism and my appreciation of the stoic world representation concerning its practical benefits.
 
+## negative vizualisation, a suggestion to make it easier. 
+I am reading the 7th chapter of Donaldson book. This is interesting as he goes in great practical details for this activity, which I found lacking in Irvine book. He is uncomfortable with the term coined by Irvine "negative vizualisation", because an external event should, in Stoic perspective, be indifferent. To be fair, negative makes sense as it's just the opposite of the positive vizualisation mental activity. But, it's also true that words have strength. I think negative viz are complex to me because one should in the same time picture the event and picture a stoic state of mind. The cognitive load associated with it is high. I suggest that the stoic state of mind can be pictured indepently of external events. I mean, just with an abstract idea of a misfortune (not the misfortune itself, depicted in details) focusig on stoic precepts : 
+- amor fati 
+- this can't be changed
+- the only thing in my control is my state of mind
+- I knew this could hapen and I prepared myself
+- This is nothing in a cosmic perspective
+- "Never say about anything, I have lost it, but say I have restored it"
+- This gives me an occasion to train my stoic abilities)
+I believe that these precepts can be encapsulated and enhanced by mental imaging. Once this is mastered (which I do not for the moment), I think negative vizualisation can be done more easily, overiding this basic reflex I have which consist to find solutions to the state I picture in my mind, or solutions to avoid this state (and that not what negative viz are made for).
