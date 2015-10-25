@@ -75,14 +75,43 @@ This is clearly a half-comfortable proposition. But in the same time, it is in a
 
 ## negative vizualisation, a suggestion to make it easier. 
 I am reading the 7th chapter of Donaldson book. This is interesting as he goes in great practical details for this activity, which I found lacking in Irvine book. He is uncomfortable with the term coined by Irvine "negative vizualisation", because an external event should, in Stoic perspective, be indifferent. To be fair, negative makes sense as it's just the opposite of the positive vizualisation mental activity. But, it's also true that words have strength. I think negative viz are complex to me because one should in the same time picture the event and picture a stoic state of mind. The cognitive load associated with it is high. I suggest that the stoic state of mind can be pictured indepently of external events. I mean, just with an abstract idea of a misfortune (not the misfortune itself, depicted in details) focusig on stoic precepts : 
-- amor fati 
-- this can't be changed
-- This is not the event I suffer from but my judgement of the event.
-- the only thing in my control is my state of mind
+
+
+Control
+- This is not the event I suffer from but my judgement of the event, he only thing in my control is my state of mind
+- The only thing in my control is my state of mind
+
+Preparation
 - I knew this could hapen and I prepared myself
+- This gives me an occasion to train my stoic abilities
+
+Distanciation Activities
+- (in case of lost)"Never say about anything, I have lost it, but say I have restored it"
+- Analysis and decomposition of the event in smaller part
+
+Perspectives
+- External are indifferents
 - This is nothing in a cosmic perspective
-- "Never say about anything, I have lost it, but say I have restored it"
-- This gives me an occasion to train my stoic abilities)
-- Analysis and decomposition of the even in smaller part
-- indifferent
+
+Fate
+- This could not have been otherwise
+- There is no one to blame
+- amor fati 
+
 I believe that these precepts can be encapsulated and enhanced by mental imaging. Once this is mastered (which I do not for the moment), I think negative vizualisation can be done more easily, overiding this basic reflex I have which consist to find solutions to the state I picture in my mind, or solutions to avoid this state (and that not what negative viz are made for).
+
+## a stoic perspective on burdens
+burden ourselves, instead of clearing our mind and flow.
+
+## 24/10/2014
+### stoic dogma
+When being a stoic is a full commitment to all its tenets, and full knowledge of the sources, then being a stoic does not worth more than being in a sect or in a religion. This is also a contradiction in the term. Stoics thought that the reason is the start for a good life. Following a dogma is the opposite of reason. The only allegiance a philosphe should have is its allegiance to his rationality. It seems that some "stoics" are reluctant to even think about some possible fork or free inspiration in stoicism. They act like in gregerous way, rejecting the guy who do not fit. Or, they can also male this sectarian retoric "if you want to propose variation or critic, you should fully study it before". Do they even realize how low passions are behind this way of thinking ? The goal of a student is to build its philosophy of life not kneeling before a new religion. 
+Note : this is what we call in french "un billet d'humeur". I don't like myself when I am thinking with an axe, but I allow it as it makes me write things that I could not usually.  This is my Nietzschean side
+
+## Passions
+In [this reddit thread](https://www.reddit.com/r/Stoicism/comments/3pwg1s/why_you_should_follow_your_passion_and_not_seek/)a guy has been critized for his article suggesting that "you should follow your passion". Following our passion has been quite unpopular in the subreddit. Indeed it's not really a stoic tenet. Two main arguments has been given : (1)You should live to make the world a better place instead (2)Following a passion enslaves you to externals. The major counter argument was that following your passion can also be the right (or logical) path. I think this a very important debate. It's a very important one for me, giving that the relation to passions (and pain) was the major critic of Nietzsche. It seems to me that a passionated personn can help the world as he can become an expert, but I don't think the common interest is his goal. He can easily loose the ability to follow its passion, but it depends of his passion. Is it possible to follow a passion and be prepared to lose it ? This is clearly not an indifferent for the passionated, but I guess stoicism can help him to limit the loss. Moreover, following a passion can help you to free you from external, as you don't care. If truly passionated, you don't care about everything which is not related to this passion. About the #1 argument dealing with philanthripy, it seems to me a burden, if taken under the form of "I MUST". This must be a lighter "I WANT" or "I would prefer". I guess many people think that it's a necessary consequence of some stoicism axioms. I am personnaly not sure about how firmly this idea is tighten with other stoic ideas. But I still have to learn. You can't be sane and quiet if you think that you HAVE TO make the world a better place. People willing to fully dedicate themselves to the common good are rare.
+
+### 25/10/2015
+
+## Short Debrief
+It's highly probable that starting from tomorrow, I will consacrate much less time to stoicism as I have a lot of work to do. I need to prepare this sudden lower stoic regime. I hope I will have time to properly participate in the stoic week. Then, it's the moment for me to sumarize my thoughts on my readings. I am fully convinced about many things in stoicism. I did not studied physics and logic but got into ethics which is quite highlighted by most of the modern writers (Irvine, Donaldson). I saw that this family is divided due to the metaphysical part (god,pantheim,thelologism etc...). Some people also stick on the necessity to learn and know logics and physics, other gently discard it, others think that ethics can't completely ignore "science" but as science as evolved, it's desirable to modernize stoicism. I feel that calling oneself a stoic is a trap. It attracts critics. To my Nietzchean side, it's like a renuncment of free thinking to declaring myself a stoic. The most important, as Irvine put it, is to build a philosophy of life. I think stoicism is an extraodinar toolkit to do that. But it seems that many people are very worried about cherry picking or discarding some thoughts of this school. They fear that doing this, you risk a lack of consistency. It seems to be a legitimate worry. But in the same time, it's also important (at least for me) to form our own consistency, not relying on a, maybe not that solid, external system. So, I hesitate about two tenets of stoicism "vertue is the sole good" and the elimination of passions. My thoughts on this subjects are still very muddy, but I would like to inspect how much passion elimination and vertue (or more conveniently the elimination of passion that does not participate the common good) are tied to rest of the stoic ideas. For the moment, I value freedom and passion and I am a Nietzschean atheist, so...it's complex. I found two books about Nietzsche ideas as therapeuties. As, in my readings, I discovered that Nietzsche had strong stoic roots which he rejected as strongly later, but this is how Nietzsche proceed (wagner, schopenhauer, science...). So, I should study these books once I have more digested stoicism. I am really eager to find a common ground where passion and freedom (eventually pain and craziness) have some place. But maybe it will just end up in a delusion. I like stoic mental exercices, and I am happy to built mine. I had some affinities with this kind of practice 4 years ago, so I am very glad to get back to this kind of exercices. I build my own mental images to encode stoic precepts, and I find the vizualisation very helpful. I am also glad to be able to use my experience in the use of the method of loci to do that. I see people keeping a table of citations, or index cards, but I would suggest that's superior to keep these ideas in our mind, encoded in emotionnal mental images and not in pure text. So, I don't know, according the outcomes of my chain of images, I think sharing this technique with the community (and possibly sharing my own chain of images) would be a important thing to do. One thing I should do, tonight, is to check if there are some others important ideas that are not in my images, from Donaldson book notably. When I have more time, I think I should read the inner Citadel from Pierre Hadot as well as Marcus Aurelius. I would also read the book about therapy and Nietzsche. I felt few results of my readings and my practice. I had a few situations where I react very properly. I also appreciated some moments. I am very attentive about what drives my actions and get warning when I had some emotions. I have avoided being upset. This is this moment by moment attentiveness that brought a lot I think. Now that my mind will be free from my 6H/day reading, I should be careful to keep this level of alertness at a convenable level. Morning and Evening exercices will have more importance than before. It will be very interesting to see how the two next weeks go.
