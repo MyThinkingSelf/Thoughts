@@ -143,10 +143,34 @@ After inspection, social networks have a too big emotional charge to me. I loose
 
 ### replace living according nature
 This concept is really problematic for whoever want to put modern eyes on stoicism. Replacing it by living according truth, science, or our nature is not fully satisfactory. If I follow Ure and Sellars, human stoicism becomes cosmic stoicism when the individual is not longer opposed with an hostile environement, but find a place in a cosmic perspective, and then complete fortitude by a strong feeling of acceptation. I fear that replacing stoic conception of the world by a modern view undermine this story of acceptation. For example, Irvine and his proposal to re-root rationality in the context of evolutional psychology sounds a more modern story than the zeus story of epictetus, but it does not bring this feeling of having a comfortable place in this world. Our rationnality is not far from being a bug overriding animal instincts. 
+Or is it ? Instincts occurs, emotion happens, reason happens. Believing that something is more natural than the other seems, from one oter point of view, just a hidden teleological point of view where the individual try to makes sense on what he is and what are his root.
 
-## accept the non acceptation
+### accept the non acceptation
 One view, that I barely dare to suggest, is to fully accept that no acceptation is possible, that nature would never ever give us virtuous law to behave. Our ego is wounded and the human life is meaningless. This is another starting point. This goes along Nietzsche and Camus (and maybe others) view. This also gives the vertige of nihilism and absurd which obsessed these authors. Full acceptation of this state of the world is much more hard to achieve. Eternal return and "one should imagine sysiphe happy" are also more challenging thought experience.  I have the intuition that, building a philosophy of life based on this premisse would bring some values like individualism, life passions, conquest, creations and disruptions, a very important place that would, at first sight, give a strict opposite of stoicism. Nevertheless, I also feel that this path recquires more stoicism than stoic life itself. You need a much better control in a passionate life than in a stoic life. As I developped before, stoic life style is already a difficult conquest over oneself, which makes it completely inline with this idea to accept the wound. Ego must be both sedated and transformed to achieve a virtuous existence. Stoicism suggested how to do these both operations, but transformation can go further. This philosophy of life would be a potential step 2 after being a stoic, provoked by the realization that there is no Nature but only a wounded ego in an absurd world. Two paths are then possible. Let's stop this rambling now.
 
-### 28/10/2015
-## pneuma, beautiful pneuma
+## 28/10/2015
+### pneuma, beautiful pneuma
 I just read https://en.wikipedia.org/wiki/Pneuma_(Stoic) and found it beautiful. Binding human breath to a generative principle in the universe gives powerful images. Tension, life force, soul (and eventually rational force) are different levels of pneuma. When modernizing stoicism, these images would disappear from the mental repertoire of the stoic. But modernizing stoicism, to me, is also to recognize that this cosmology was produced by human minds who did not have our harsh science, it was produced by human minds for human minds. This way, physics was confortable stories, where our feeling where the starting point to develop more formal conceptions of the world. Stoic cosmology should be preserved as a repertoire of powerful mental images, and could also be strengthen and developped further, why not ? 
+
+### we transcend nothing
+Quote from paintedporch end of episode 4. We transcend nothing and nothing lasts, no matter how much we'd like to believe the opposite. From Barry Magid, in the book Ending the pursuit of hapiness : a Zen guide. Is Nietzsche/Camus project to kind of transcend the universe, while they say it's impossible ? If So, it must be thought.
+
+### The Dance Song
+All these thought about passions and reason made me think back to a passage of thus spake zarathutra that I felt in love 7 years ago. https://en.wikisource.org/wiki/Thus_Spake_Zarathustra/Part_Two#32._The_Dance_Song . Wisdom and Life are depicted as two women. This chapter is both filled with powerful vivid images mixed with obscurity. The passage end on a sad note, like an existencial crisis. Here is a quote :
+
+>And when I talked face to face with my wild Wisdom, she said to me angrily: "You will, you crave, you love; on that account alone do you praise Life!"
+Then had I almost answered indignantly and told the truth to the angry one; and one cannot answer more indignantly than when one "tells the truth" to one's Wisdom.
+For thus do things stand with us three. In my heart do I love only Life- and verily, most when I hate her!   
+
+What does it means to prefer Life to Wisdom when Z hardly can know who is Life ? Wisdom has her own idea about the nature of this relation "you will[...]". How different Wisdom and Life are ? He can't really say neither. 
+This firm affirmation of love mixed with a deep feeling of uncertainty and undecidability is beautiful and problematic, and the crux of this chapter and the reason, according to me, for the melancholic note at the end.
+
+>An unknown presence is about me, and gazes thoughtfully. What! you live still, Zarathustra?
+Why? Wherefore? Whereby? Where? Where? How? Is it not folly still to live?-
+
+### Virtuous actions forcing virtous thoughts
+I just being confronted to a basic wrong passion. Something I did, while a bit struck (because, yes, I am still not a stoic master), was to act fast and adequately. Then after the feeling of self-control and distanction took place. 
+
+### Stress
+I think a lot about how pressure works on me. I value a lot being able to think fast. There is, of course, a pain caused by the stress. But once the first few minutes of true discomfort, it's highy compensated by a sensation of real control of our mind process. A sharp attention. So, clearly, I don't know how to think about that.
+
