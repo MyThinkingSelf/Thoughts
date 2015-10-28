@@ -19,3 +19,13 @@ Morning :
 - Full images chain 
 - Prepare day 
 Note : difficulties this morning as I slept not much (6h). I noticed before that with (even minor) reduction of sleep, I have harder time to empty my mind during exercices, and get vivid images in vizualisations. Nonetheless, I accepted it and done as much as I could. I feel in control right now (8.30 am). My goal today is to stay in control like yesterday from 8am to 4pm. I valued my time and stayed alert. But at 4pm I lost it.
+Evening :
+- none
+
+## 28/10/2015
+Morning
+- Breathing exercice (5min)
+- Full images chain (7min)
+- Prepare day (4 min)
+Note : I lost time this morning, but instead of rushing my morning and go to work. I took time to exercice, which is most valuable than the rest. This is a good win. Mental images were vivid today.
+
