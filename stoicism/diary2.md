@@ -174,3 +174,7 @@ I just being confronted to a basic wrong passion. Something I did, while a bit s
 ### Stress
 I think a lot about how pressure works on me. I value a lot being able to think fast. There is, of course, a pain caused by the stress. But once the first few minutes of true discomfort, it's highy compensated by a sensation of real control of our mind process. A sharp attention. So, clearly, I don't know how to think about that.
 
+## 29/10/2015
+### outlines for a Nietzchean shift (to myself)
+stoics wrote and talked to heal; they built their conception of nature upon the conception of their life; narcissism is the hardest passion to heal ; self-cultivation heal narcissism by transforming it ; higher degree of acceptation is recquired if passion, pain, and absurd are not rejected ; acceptation of pain, eternal recurrence, responsability for your dreams ; reject of stoic hypocrisy of indifferent externals ("this is indifferent to me") as a failure in the project of Full Acceptation; stronger images and metaphor are recquired to compensate cosmology loss and support higher degree of acceptation ; nested soul.
+
