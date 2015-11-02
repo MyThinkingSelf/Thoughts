@@ -64,6 +64,7 @@ Epictète Arena ; At the end : you are now in the arena
 ## MYLIST
 *****
 (A) START
+0] Philosophes (Epictetus, Aurelius, Nietzsche) around me. "Time to build a character", "how longwill you wait to ask the better of yourself" "the quality of your life depends on the quality of your thoughts".
 1] Blue Sphere
 Epictete nous donnent deux boules (blue, gold), you pick the blue, you feel invincible. Indeed every black bim hiting the sphere is deflected or filtered as a blue bim. Blue Sphere of control (Robertson). Start the journey. 
 2] Sablier
