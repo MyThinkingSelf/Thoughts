@@ -29,3 +29,40 @@ Morning
 - Prepare day (4 min)
 Note : I lost time this morning, but instead of rushing my morning and go to work. I took time to exercice, which is most valuable than the rest. This is a good win. Mental images were vivid today.
 
+Evening : none
+
+## 29/10/2015
+Morning
+- Breathing exercice 
+- Full images chain 
+- Prepare day 
+Note : I lost time this morning, but instead of rushing my morning and go to work. I took time to exercice, which is most valuable than the rest. This is a good win. Mental images were vivid today.
+
+Evening : none
+
+## 30/10/2015
+NONE
+Note : little night and too much to do once woke up
+
+## 31/10/2015
+Morning
+- Breathing exercice 
+- Full images chain 
+Evening : none
+
+## 1/11/2015
+Morning
+- Breathing exercice 
+- Full images chain 
+Evening : none
+Note : This week end I moved to a place, this had effect on my habits. I still kept morning meditation, but did not write nor read (just a bit). 
+
+## 2/11/2015 : STOIC WEEK
+Fortunately or not, during this stoic week I have to prepare my self to a stressfull event taking place at the end of the week. This means that I will have less time and more need of stoicism. Interesting :)
+
+Morning
+- Breathing exercice 
+- Full images chain 
+- Prepare the day
+
+Evening : none
