@@ -188,3 +188,14 @@ This is the stoic week and I have to train for an event at the end of the week. 
 
 ### worship god to have a good relation with competition
 As I wrote earlier, I believe that metaphysics and religious stuff should not totally be discarded and re-used intelligently for psychological purposes. Following my last post I wondered how an individual could benefit from the harsh discipline of training without being led (hear misslead) by outcomes such as fame and money. Then I told myself, why not putting value in competition in itself, disregarding any kind of possible externals. And another thought, as sudden, why not worshipping a god who wants me to train hard. Then...finally, I asked myself if it was not the case in ancient Greece. Do people compete as an act of worship ? After a quick google search, I had an affirmative answer. Of course that does not prove anything. I also could have lied here (but as I said, I experience honesty in this diary). I also doubt that it's the same reason, I guess any greek fest is supposed to worship zeus and his friends. But, still, It's funny. I may try to worship a Competition God in the next future, who knows ?
+
+### virtue is the only good
+Why is it a fundamental in stoic ethic ? Is it deduced from something else or is it an axiom. So many people are swearing by this precept that I am starting to wonder why this is central in stoicism. From what I read (maybe misread), I did not find the roots of this idea.
+
+### Nietzsche battles on facebook
+I had the luck to practise stoicism while reading comments about Nietzsche on one stoic facebook group. While having got some strawman attacks, others have good ideas "[..]Nietzsche would probably tell you that he intentionally built no system for others to follow[..]", "I'd like to see anyone point me toward any passage ever written by Nietzsche saying that virtue is the only good". "What have I learned here? That once Nietzsche enters into the conversation, things tend to go south. (Though really, I already knew that. )". I put some references on the claim of Ure and got some linkgs towards Ure worth reading. 
+
+## 03/11/2015
+
+### Detection of bad passions/emotions
+Today, and maybe yesterday, I detected much of these things around me. I am amazed how much people complained and how much I am tempted to complain. I don't think, however, that I was perfectly mindful and virtous to handle each occurences, but my inner stoic bell rang many times. I think it's an important step. 
