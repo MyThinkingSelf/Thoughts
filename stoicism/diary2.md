@@ -199,3 +199,19 @@ I had the luck to practise stoicism while reading comments about Nietzsche on on
 
 ### Detection of bad passions/emotions
 Today, and maybe yesterday, I detected much of these things around me. I am amazed how much people complained and how much I am tempted to complain. I don't think, however, that I was perfectly mindful and virtous to handle each occurences, but my inner stoic bell rang many times. I think it's an important step. 
+
+## 04/11/2015
+
+### Arete is the only good
+I felt uneasy with virtue is the only good. It sounds to me related to moral standards (kant or christian moral). However, this is just how I am used to read "virtue". As many point out, Arete is more close than Excellence than in vertue. I prefer excellence. I am much more inclined to accept statements such as "excellence is the only good". So be it ? Marie Snow on facebook "True virtue dos not come from a tablet of laws"[...]"In other words virtue comes from the inside. Clean the inside and the actions on the outside also are clean.". I abide.
+
+## 05/11/2015
+
+### logs
+From a distanced point of view, this stoic week is going wrong for me. I got stormed by many things. Today and yesterday I did no mental training. But two things must be pointed out : (1) It could have been worse, even if I am disturbed, I can retrieve calm, or "calmer" than my old me (2) I did not blame myself and accepted that my stoicism this week is not ideal. I tend to put weigh to the hypothesis of wider acceptance that I outlined earlier. Full acceptance is acceptance that loosing intentionnaly or inintationnaly stoic mindset can happen. My second soul is doing a fine job (reference to feverish philosophy of life file).
+
+## Irvine
+3 weeks before I wrote nice things about Irvine book. I do not regret, and I still think that he targeted successfully a very noble (noblest ?) aim : inviting the reader to build a philosophy of life. By showing his own construction, he gives the example. Now I realised that his construction was to some extent far from ancient stoicism. Not about metaphysics and nature, but about the relation with pleasure, passion and achievements. The good point is that this stoicism is flexible, and it's  harder to be accused of being an hypocrite within this conception. The bad point is that the reader (as I was) may have a biased view of stoicism. I am now happy to know about the hardest lines of stoicism to make my mind about it. By giving the reader an easy starter kit, maybe it also provides the side effect to make him lazy to confront with harder lines of thoughts, prefering a mild and confortable system.
+
+## this diary
+I like how it goes. Keeping track of my old thought by respecting the integrety of the context from where they arise has some values. I see how my mind changed with time. 
