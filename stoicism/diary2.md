@@ -215,3 +215,17 @@ From a distanced point of view, this stoic week is going wrong for me. I got sto
 
 ## this diary
 I like how it goes. Keeping track of my old thought by respecting the integrety of the context from where they arise has some values. I see how my mind changed with time. 
+
+## 08/11/2015
+
+### Competition took place, not stoic at all, nevermind
+Competition took place. I had not had the stoic minddful attention. But the stoic bell rang from times to times to change my mental state, like for example after bad results. So it's ok. I had certainly not the indifferent external mind this day, however I was more focused on each feat than its potential outcomes. So it's ok.
+
+### Can't tam some thoughts
+I just interrupted my breathing exercices with empty mind to think about something I can't help to think about. Nothing really related to sadness or anger, but more related to passions. As a Nietzschean, I would contrast this fail by suggesting that it's a bless to have some thoughts that you feel compel to develop. When some of your thoughts can sometimes be stronger than your thought controlling abilities, don't be a terrible dad and let them play outside for a few minutes, you are blessed to have such energetic children (to be copied in philosophy outline, I like this new image).
+
+### metaphysics and mental images
+I put this on facebook. This should be consigned here as my words seemed to represent more consisely thoughts I tried to develop before. This was in a thread "devil avocate" where OP asked criticisms against stoicism. "So, to chip in, my argument against stoicism is that they don't admit that what counts is not the belief in fate and zeus and so one, but the mental images of fate, zeus and so one. This is not the same thing. Metaphysical beliefs taken as such empedes improvements and limit free thinking. Metaphysical beliefs taken as a repertory for effective mental images, on the contrary, gives us the right to take what we want and move one with our own system."
+
+### stoicism and other school of thoughts
+On facebook, C.F interacted with me after this post. I learned from him : (1) cynics saw no values in stoic metaphysics (2) academic skeptics was criticizing Cataleptic impressions of stoics (so I looked up on wikipedia and learned what it is) (3) Epicureans disagreed with teology (4) Modern stoics seem to accept only the third axiom of his list (virtue is the only good) and try to "re-synthesize the system". I should make up my mind with the point 2. It seems that the platonic alternative is pure thinking and pure ideas etc.. which I don't buy. I guess, for me, Cataleptic impressions are the less evil, even if I don't like this idea that one impression can be true or false, this is again too close from platon's ideas.
