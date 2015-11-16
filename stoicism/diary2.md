@@ -229,3 +229,13 @@ I put this on facebook. This should be consigned here as my words seemed to repr
 
 ### stoicism and other school of thoughts
 On facebook, C.F interacted with me after this post. I learned from him : (1) cynics saw no values in stoic metaphysics (2) academic skeptics was criticizing Cataleptic impressions of stoics (so I looked up on wikipedia and learned what it is) (3) Epicureans disagreed with teology (4) Modern stoics seem to accept only the third axiom of his list (virtue is the only good) and try to "re-synthesize the system". I should make up my mind with the point 2. It seems that the platonic alternative is pure thinking and pure ideas etc.. which I don't buy. I guess, for me, Cataleptic impressions are the less evil, even if I don't like this idea that one impression can be true or false, this is again too close from platon's ideas.
+
+## 16/11/2015
+
+### 5 days of hedonism
+I went on travel with friends to have fun. I did have fun, without especially caring about arete or prosoke. Only worked on my stoic mindset when I lost some of my belongings. What should I conclude from this experience ? I don't know yet, but it must be written there to think about that later.
+
+### Hume, reason and passions
+From M.B on facebook about Hume : "if I understand correctly, is that the passions are the only thing that can provide us with our motive force. It's the job of reason to achieve what the passions dictate. ". 
+
+
