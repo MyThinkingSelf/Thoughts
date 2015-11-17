@@ -238,4 +238,8 @@ I went on travel with friends to have fun. I did have fun, without especially ca
 ### Hume, reason and passions
 From M.B on facebook about Hume : "if I understand correctly, is that the passions are the only thing that can provide us with our motive force. It's the job of reason to achieve what the passions dictate. ". 
 
+## 17/11/2015
+
+### wrong mood
+I feel bad today. The reasons I give to myself for this mood are not (even with stoicism aside) relevant. This makes me think to a lot of things. I feel distracted. Is this related with my 5 days of hedonism, or to my current tired state, or recent events. I can't be sure. It seems to be very frequent for me to feel bad after enjoyments. I don't know how reliable is this impression. Anyway, another question I ask is : should my mental state now be considered to be an external. I feel that the stoic schema is all about the reaction to external events. I think that I should take my current body state as an external. But the stoic schema get muddy. Why not take the inner soul schema I outlined in another file. I feel it's easier to picture this situation in a peasible frame than it is with stoic images when it comes about these difficult things.
 
