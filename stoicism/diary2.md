@@ -245,3 +245,41 @@ I feel bad today. The reasons I give to myself for this mood are not (even with 
 
 ### hedonistic hangover
 Few things I noticed. I have more difficulties to keep my brain out of some object of desire. This is quite obvious, but it's not uncompelling at all. I come to think that these 5 days were valuable. I can now judge what is the price on my stoic mindset. I don't believe this week-end changed me radically, and I do think I'll recover fast. This idea also takes place in the Greater Acceptation I also tried to outline. I accept this as a hangover of the hedonostic days. I also don't think I have good reasons - for the moment - to avoid this kind of enjoyments in the future...because it was freaking cool. However, now that I am trying to develop good stoic passions, I don't exclude the idea that I will change my mind and think equanimity and virtue are not only better, but the sole goods I can take. For the moment, let beef up my stoic mindset. 
+
+## 23/11/2015
+
+### come back to stoic mindset
+Last log on this diary : one week ago. The week I spend was not stoic (neither hedonist). What happened ? I barely remember. I just feel that I had troubles that I did not fix. So I got back to the kind of auto-pilot I was used to be during more than few moments in my life. So, it was a backslide, for sure. This morning I practised again morning exercices. I feel that I retrieve calm and...I must say...practical rationnality to plan my day and fix problems. And each time I retrieve this sense of control and the mental confort it procures, I ask myself, why not every day, this is just fucking 30 minutes of meditation to spend, and it brings so much. This is the weirdest feature of my auto-pilot mental life, not doing the small efforts to retrieve serenity and control. One is tempted to rationalize by saying that there are good reasons for that. I know people who are thinking that this mondane mood disorder is part of who they are. I was one of them. Now, I think it's something that one can and must discard from his life.
+
+## 03/12/2015
+
+### few points
+My future self should not interpret this absence of logs as a slacking off. I am still building the stoic mindset even if meditations got rared. I felt a bit bored with my chain of images so practiced less. Maybe I should renew these images to get them vivid again. However the last image from the image chain is still very powerfull. I still listen a lot about stoicism via stoic podcast, I made a mind map of the compilation of quotes from epictetus made by Massimo. Soon public when I will figure out a way to split it in multiples maps. I have multiple readings not finished (Hadot, Steppen Wolf, Marcus, Ure). I realized that a part of the stoic mindset was immediately reachable. It's hard to put words on it but I should try for the purpose of its reproducibility if I happen to lose it. it's just an idea like"time to get serious, time to build a character". Head a little more inclined upwards, longer breath, body a bit more straighten. A sort of feeling that mix concentration and preparation for a fight. Sort of related to the outcomes of my last image in my chain. While reading quotes compilation of Massimo, I also figured out an anology with my ongoing training to the training of the stoic mindset. I train while measuring a lot my progression, the exercice would be boring if I had not the certainty (backed up by measurements) of it's usefullness. I know that it's the exercice I have to do. Rationnality has a big place here. This can be easily projected to stoic training. I must be confident that training improves my stoic mindset. I also must repeat short exercices accross the day. Can't be boring as I know this is a good path.
+
+### [meditation] choose the right path
+When you hesitate about different paths, ask yourself : "what is better : being confident about that you are doing is right and suffering physical incomforts or being doubtful about the rightneous of your choices and have a more confortable material situation". This is how I feel : When you are confident to be on the right path, mind and body becomes like metal. You won't ever blame yourself, this is the highest confort you can hope. What is the most unpleasant feeling "going to a just war or get stabbed ?". This is how I feel, your first war to win is yourself, ensure that your inner territory would never be taken. If your territory can't be taken, you can afford just wars, even the hardest one. Then you will feel twice well : peace and just wars. Do not follow this advice and you will suffer from wrong wars and civil wars at the same time.
+
+### [meditation] absurdism
+"Life is absurd !" you cry, or again, you also add "I would give everything for a Meaning once it shows up". First of all, you would certainly not give everything, won't you keep with you your ability to give ? Second, considere each possibility. if the Meaning never comes, why not building yourself a character and do, at your scale, what you think is right ? You would get the most of life from the point of view of rightness and hapiness. Second, if it comes, don't you want to be ready for this day ? Don't you want to build your strengh if such days appear ? Would you be idiot at the point to get into an hunger strike by desesperation of not being taken to participate in Olympics ? Weak as you become, if you are called, you would hate your days complaining instead of building your muscles ? Finally, if you resign yourself to think the world is absurd, and if you chose life over death, am I wrong if I say that it's an excellent setup to create order in the chaos, to create meaning within the absurd, to erect the tower that will resist the most tourmented weather of the universe ? "Life is absurd", then shows how much absurd it is by building the most beautifully shaped tower you can. Appreciating both your tower and its vertiginous feeling "after all this is nothing". You would get the slight smile of the king of the kings, the smile of a human having reached the highest acceptance. Again, you won in both worlds. The world where you know that everything is absurd and the world where you chose to play to spend time, puting aside the darkest idea.
+
+### [meditation] "I am a"
+Each time you start this sentence, beware. Don't forget that the father of your goods is "free thinking" and you would not want to shame your father, would you ? Look into yourself carefully each time you pronounce these words or you think using these words. Beware of laziness, beware of gregerous thinking, beware of anything that alleviate you the responsability of your philosphical system, anything that suggests that your journey of free thinker has come to an end. Sadly, many thinkers, with a profound culture a mind ten times more sharped than mine and elegant moral disposition had openly declared "I am a". Some even marked their body with this new commitment. Share with me the sadness of this spectacle, where these brillant people, momentarily inebriated by some blazing philosophical enlightment, believed that they had to commit to a system like commiting to a second wife or a second child. How rationnal, for a free thinker,  to anchor your mind. Stay alert, by keeping in mind that some of them are philosophers. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
