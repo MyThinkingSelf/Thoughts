@@ -66,3 +66,15 @@ Morning
 - Prepare the day
 
 Evening : none
+
+## 6/12/2015
+Managed to keep a stoic mindset dealing with people, especially one person with a wrong character. "it seems right to him" works well. And it's not that a trick. There is good chances that it seems right to him.
+The place where I went were people discuss philosophy is very therapeutic. This is not the first time I get out with a profound feeling of calm. The intellectual activity of listening to people the most I could while building my own thoughts made my mind in the same state my body is after intense sport.
+
+## 7/12/2015
+breathing, image chain, planning. (10h38 => Feel good and realized good things yet)
+
+## 8/12/2015
+Breathing (morning, afternoon).
+Get out of situations more properly than usual (not perfectly though)
+

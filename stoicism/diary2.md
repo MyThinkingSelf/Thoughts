@@ -265,21 +265,70 @@ When you hesitate about different paths, ask yourself : "what is better : being 
 ### [meditation] "I am a"
 Each time you start this sentence, beware. Don't forget that the father of your goods is "free thinking" and you would not want to shame your father, would you ? Look into yourself carefully each time you pronounce these words or you think using these words. Beware of laziness, beware of gregerous thinking, beware of anything that alleviate you the responsability of your philosphical system, anything that suggests that your journey of free thinker has come to an end. Sadly, many thinkers, with a profound culture a mind ten times more sharped than mine and elegant moral disposition had openly declared "I am a". Some even marked their body with this new commitment. Share with me the sadness of this spectacle, where these brillant people, momentarily inebriated by some blazing philosophical enlightment, believed that they had to commit to a system like commiting to a second wife or a second child. How rationnal, for a free thinker,  to anchor your mind. Stay alert, by keeping in mind that some of them are philosophers. 
 
+### [quote] * "If you want any good, get it from within yourself."
+That's all. I like this quote. This must be stored in the diary.
 
+### [meditation] "I am a" (second)
+Another reason why you should not anchor your mind in a school of thought is that their chief, by becoming chiefs, and sub-chiefs, renounced, even not knowingly to their free spirit. Too much is at stake to envision departures. Thus, many are the priest, who became atheist and never made their coming-out. Certainly for good reasons, sadly.
 
+## 07/12/2015
 
+### [meditation] Time and valuing activities.
+Unless you are already wise, some activities are more pleasant than others, some are more usefull from others. Don't forget the doctrine of Higher Acceptance and embrace your uncompletion. Building your mind to get right ideas and right actions will close this gap between you should and you want. Now, think like Marcus who were maybe the most technical player to righten his ideas. Think about physical definitions and cosmic perspectives. In a few seconds, you can get your ideas right. Now, think about Seneca and his idea about time, and time keeping. This is the only thing you can spend. Combine these two perspectives and get your mind think about your pleasant and unpleasant task only from the perspective of time elapsed to end them. Your task is no longer a monster, it's a fix amount of time where you will controll your body to manage it. Take time definition of your task, and physical definition of your physical moves and mental moves to achieve it and your monster is no longer one. You won't need more than that, but if you want even more courage, recall the boxer analogy of Epictetus and appreciate that fate gave you a decent partner to train what you want to train. Pleasant activities can also be seen this way. You already pictured the outcomes, but did you pictured the time recquired to do it. Facture yourself this time, establish your quotation, and ask yourself if it's wise to sign.
 
+### [meditation] Beware the sirens.
+Epictetus warned you about the sirens you risk to encounter while learning stoicism which makes you focused on a specific stoic topic instead of building your philosophy as a whole. Beware indeed, as there is a sneaking siren hidding behind every activity, even the noblest. You end up wasting your time, closing your mind, seeking to reproduce the stimulation you got, until you feel the void of its absence. Even worst you would like to heal your void by seeking another siren ? This is how you lost your wisdom to become the mad man you were before. See each activity from the perspective of the dock analogy of epictetus. You can visit, you can possess things, at only one condition, to be absolutely ready to get back to the boat once the captain called yourself back. 
 
+### [meditation] Higher acceptance variation on the sirens.
+What follows is not stoicism anymore : Accept being wrapped up, this is the Higher Acceptance I am teaching you. Accept being recalled. Accept being hurt while doing so. This is not stoicism anymore. This is the Inner Soul doctrine I am teaching you. How is it compatible ? By building a mind that trust the images and the doctrines he built. While being hurt, while being wrapped up, one part of you is absolutely confident of the strengh of its inner soul.
 
+### [meditation] the more a thinker writes on X
+The more he writes about death, the more he needs strengh to fight death. The more he writes about fame, the more he needs strengh to fight attraction of fame. Why would he wrote about fame if he was not convinced this is a problem to solve for him then for others. Writing about a subject shows weakness and pain to heal, not wisdom. However, by healing himself, he heals ourselves, he gives us the physical and mental path to follow. Then, on what subject I am dwelling more than others ? Ego ? Existence and absurdism ? Will ? On what subjects I am dwelling less before than now ? jealousy ? I am not sure. Continue to write and you will be more sure.
 
+### [meditation] "I must be wise"
+One day, you visit a friend. All over the walls are written the sentence "I must be wise", would you say then that your friend is wise ?
 
+### [log] the extreme right guy
+I found an interesting guy, polite, thoughtful and interested by Nietzsche and Antique philosophies. Then I discovered he had a good relation to an extreme (or even extreme²) political party that I can't stand. What was my reaction ? Immediate reject of the individual "he sounded crazy since the beginning anyway", "I don't want to know more about him". Well maybe he is. But should I pause a moment here ? I ended up to defuse my reject by thinking that at least he was thinking and discussing. He is a man which seems to be able to discuss with. So he is not completely evil. When writing these lines more proper ideas came to my mind : "This is only a link from his blog to the party", "it seems right to him", "he is maybe more able to argue in favor of its political stance than me" "I can't blame philosophy if it brings people to an extreme, this may even be desirable". Each personn makes is own path. Don't judge the rationnality of others, and focus on my own rationnality. This is my kind of reject which makes people more extreme.
 
+### [meditation] Death
+Are you affraid about death ? Read Marcus Aurellius, who is to death what Batman is to bats. Not only you won't be afraid of death, but it can be the heart and the corner stone of your philosophical system. A golden perspective from which you judge everything. You get a new perspective on death and a new perspective brought by death. See ? A good thinker obsessed by something is the best healer you can find. Are you obsessed with the absurdity of existence ? Read Camus. Are you obsessed with your tumultuous passions ? Read Nietzsche.
 
+### [meditation] other minds
+You won't go far if you look for people approval. But, there are good chances that you got into wrong ways. Stay courageaous, traveller, don't go that far that you can't investigate other paths as I too many times did. But go far enough to see by yourself how good is your path. Go far and then ask people.
 
+## 08/12/2015
 
+### [log] self-denounciation and guilt
+This morning I denounced myself concerning a fault I have made. I shall keep few notes about this process. What made me decide to tell the truth seemed to be more the idea "come one I can bear the consequences" than "I shall live in a moral way". One thing to notice is that I was completely mindless. I made several errors in planning my day during my guilt. The idea of fate also helped.  "it could not have been otherwise". I also applied to myself "at that time it sounded right to me", which is true. Few hours laters, while I was trying to evacuate my guilt, I had also to evacuate the guilt of evacuating my guilt. Always this thought in background : "you should suffer it to avoid reproducing it". I am skeptical about this, but this is a common idea which is hard to eliminate. One idea helped. "If you continue on the path of the stoic mindset, not only you won't hurt yourself with guilt, but also, by being more mindful, these errors are less prone to occur again".
 
+### what you need
+You probably need no more than the will to change, few exercices in the day and 50 quotes in your mind. Is this deceptively easy ? From a distant perspective it is. But humans got hard time to change from within. Humans are animals, animals react to environement. That why we use quotes, images, role models. Project the beauty from within to build the cognitive environnement you evolve in, and you shall succeed.
 
+### (follow up)Forget inner strengh
+Is it a hack ? Is it a workaround to our weakness ? I see, you may have prefered ideas of pure strengh, a divine origin, an inner fire that can do everything. We are creative, subtle. We are david, not goliath. But take time to think deeply about it, what is the most beautiful ? What is the most solid conception of your existence ? 
 
+### (follow up) inner fire
+So, is this is the end of the magnificient images of inner fire, inner divine power, our freedom our virtue that nothing can stop. No. This is a rebirth. Read me again. You build your images, and your images build you. The will is your most important feature. Nourish it by what it likes the most.
 
+### [meditation]free to react well
+Whatever happens to you, nothing and no one can empeach you to think properly.
+// everywhere in Epictetus and Marcus, but I like this very dense version.
 
+### [log] progress
+There is no doubt that the man I am during these last days is not the man from the start of this diary. I did not took time to read back the first thing I wrote. I should, and it will be interesting. But I remember some of the complains on stupid things I had. I am ashamed. This is a good hint that there is a progression. I should not be ashamed though, as this is past, this is senseless emotion, and I have no assurance to not return to this mental disturbances. If it occurs again, should I be ashamed ? Probably not. But if I am ashamed to my past self, I encounter a risk of dissonnance.
 
+### [fun] secret to heal a moral pain
+1) Takes a smart man. 2) Inflict him your pain. 3) Steal him the network of ideas he made to fight his pain.
+
+### [log] one comment to take me down
+Something late "why don't you work on X ? You will have troubles if you start working on X too late". This made me down. Physiological symptoms of stress, anxiety, shorter breath, doidering on internet. I do not want to do the "right" things I planned to do. This was only 10min ago, but it's already enough. This note targets the dissection of my feeling. I should do my best ? Then study and digest this thing. What judgement should I have ? He is right ? Maybe ! The point is that the mistake has been done earlier. I did not plan. Not planning is exposing myself to this kind of disturbing feeling. Not the sudden realization, but an increase of anxiety as I do not properly analyse (and most likely don't want to). Another note to add is that this moment is one amongst many I have in my routine life. They look like a lot each others. So, let's apply reason and maxim. Take a moment to breath, and cold analyse this situation. Tonight, analyse deeper this situation. I feel a burst of emotion by the idea that I may one day be immune to this. Occuring less often, and handled more efficiently if I react according my precepts.
+
+### [meditation] like a kid
+Don't be like this kid, who once starts loosing a board game does not want to play anymore. You have a difficulty and you start thinking less seriously your commitment to the act of building a strong mindset. Are you that a bad player ? Shows me you are better than that, and do what is in your power. 
+
+### [meditation] invasion analogy
+When some part of your empire is envaded, do you look away or chase away your invaders ? Then, when your mind is invaded, don't shame yourself by not thinking anymore. Chase actively your invaders and take back your most precious ability.
+
+### [meditation] horserider analogy
+The knight got nervous as a result his horse became hard to control. To retrieve the knight has to activel calm the horse before having a chance to retrieve his calm. This is the same for your mind and your body. If you lose temper at such point that your body got contracted. Take time to calm it, take long breaths, walk, take your time, and then you have a chance to think clearly again.
