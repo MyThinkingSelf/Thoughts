@@ -343,7 +343,7 @@ When you think right, you can act right. You also discovered that acting right c
 ### [log] morning fail, how to get back to a proper mental state
 No meditation, no planning, I just entered my day carelessly. No attention, no control, just doing some thing and some others when it comes to my mind. Got distracted. So, what is the shortest path to retrieve the mindset. Writing these lines (1), of course, helps. But I may not want do that each time. I see some other possibilities, possibly overlapping : meditate on a "starter quote", (2) the kind of quote which stirs up my stoic mindset such as "Do you have reason? I have. Why then do you not use it? Meditations IV.13 " or "How long will you wait before you demand the best of yourself, and trust reason to determine what is best? Enchiridion 51.1 ". (credits to Massimo for his collection of quotes) (3) Ask my body only 2 minutes of his time and apply the shortest path to retrieve calm. (4) Read (profound book not stuff on the internet), in a sense this is a distraction but a distraction getting the mind focused. (5) analyse why am in this state, blamelessly, keeping in mind that it could not have been otherwisee. Try to identify if there is a little something that some part of you don't want to think about, and face it (6) Kick my own ass "don't be a fucking lazy bastard and build yourself a character. Are you such lame that only mild wind get you lost balance. Olympics has started, only the spectator has the leisure to seat and watch carelessely not the gladiator. You picked your role, stick to it". (7) Reserve a short time frame (1h) to engaging seriously in one activity, whatever its relevancy, but with strict rationnality in the execution and strong attention. (8) Just stop your mind, walk and breath. (9) straigthen your body and hold your jaw as a serious man.
 
-## 12/10/2015
+## 12/12/2015
 
 ### [meditation]
 one of the deepest allure of philosophy is that any act, any thought can be related to a framework, whether to be guided by or to enrich it.
@@ -353,3 +353,45 @@ Now that I learned more about stoicism. I should get back to my first appraisal.
 
 ### [log] dissection of a procrastination
 referring to the 10/12 post, I picked the option (7). This was a bad choice as (a) I did not felt great during this period (b) this did not solve my problem. But I can't deny that (c) I productively achieved an objective. Months ago, I would advocate that c>a+b. I now tend to consider that this trade-off exists only in the imagination of poor souls. The image of the trade-off allows us to cheaply frame their mental disturbance in a schema where they have a place. I do not exclude from my system temporary escaping of the stoic mindset. But escaping stoicism when I need it the most is to be avoided...obviously. I am disgressing right now, but maybe this is something that has to be recognized in order to get people (including myself) change for the better. So, I picked (7) which turned to be an ostrich-like approach instead of what it targeted. With hindsight, it was predictible. The more I worked on my stuff, the more I dig my head in sand. So, it comes to the classic schemata, quite theatracally, mild anxiousness leave to get on scene the monster of responsability, which can't be avoided. So (7) was more about motivated reasonning than rationnality. Beware of 7. 
+
+## 14/12/2015
+
+### [thinking] Helpful Pierre Hadot (1/4 read) 
+I have started to read the inner citadel. I did not even read a quarter and I already find it extremely helpful. Until now I saw redoundancy in Marcus-Aurelius boring and symptomatic of his obessions. Hadot made me frame it in a quite other way. He did with his mind what a dancer do with his legs, repeating a movement to improve it and progress towards perfection. Would I say, that a dancer painfully exercising a same movement accross various variation, is boring and symptomatic ? No, I would say it is pure beauty.
+
+### [meditation] do not give until
+Do not give until you feel compelled to give. You want to want to give ? This is suspicious. Desire self-mastery before, desire building the mindset and let your actions flow smoothly from the mind you built. If you fail and abandonn this path, then join the thoughtless givers who are assuaging their conscience instead of building ones.
+
+## 16/12/2015
+
+### [thinking] laziness and bad faith
+I encounter difficulties such as I do not find satisfactory solutions, only picking the less bad options. My mind cry "this is a nonsense to do such things" "the system is broken" "in a perfect world I would not have to do that" "let's leave this absurd field". In any case, complaining should not be an option. If indeed, this field is too problematic, I should analyse it with reason and whithout this bunch of emotions only related to my powerlessness. In the meantime I shall focus on what is in my control, and focus on building the mindset which does so. I should avoid letting a mental state speaking in my name. I am tired, recognizing it is the first step, the second is to avoid tiredness speak on your behalf.
+
+### [thinking] 90 minutes of meditation a day for a month
+Meditation is central for my goals, but I have difficulties sticking to it. When I woke not early enough, I skip it. I should force my time to allocate at least 20 minutes the morning. 20 min late is not being late. I should also target something like 90 min overall as an experiment. Maybe using some positive psychology methods by being prompted randomly throughout the day to store my subjective well-being. This is not double blind but I do not care much. I should compare with non-meditation days to do that properly. My belief is that it also strenghten the mindset I want to build.
+
+## 29/12/2015
+
+### [thinking] social
+Stoic meditation of the day (by Massimo Pigliucci): "The rational animal is consequently also a social animal." (Marcus Aurelius, Meditations, X.2).
+This feels weird, as social.
+
+## 04/01/2015
+
+### [thinking] laziness
+I don't know if it's laziness or some sort of more complex mindset, but the point is that, more than often, I do not do what people expect me to do. This is maybe my main problem in life. When I look into stoicisme, I read many lines about how to deal with life, but after careful consideration, this is not life as a sum of external event that troubles me, this is life as what the kind of impasse I tend to get stuck in. This primordial observation must redirect my effort. I can't feel right if I think I behave badly. I should focus on the discipline of action. Ironically, this is the discipline I like least. I should also inspect deeply what's going on inside me when I am about to think about the stuff I have to make. What feelings I have. What feelings I should have. I should also make enlighted choices. Some decisions I make are not completely absurd. If I procrastinate by learning new important things, this is defendable. But, I should not defend my choices afterwards. I should carefully inspect each. Instead, what I do, is to hide my head in sands and I judge my options on a very very superficial aspect. Indeed, this is the point of this behavior, avoid any deep consideration about the situation at hand. So, as a matter of conclusions. I should focus on "action". That does not mean "just do it", but means investigating carefully what drives good or bad actions. Under this perspective, any good or bad action has a learning outcome under the condition that my attention is strong.
+
+### [thinking] last point of procrastination
+At the current time, I have strong need to do something and retrieve my self-control. Instead I did (1) wrote an email to a friend related to self-control and stoicism (2) wrote the previous note (and this one). Two hypothesis to explain (1) avoidance strategy, by finding valuable task to replace the target task (2) build-up strategy by retrieving a stoic stance or (3) a mix between the former points. Should be investigated further. (2) alone can't be stand face to the evidence that I want to find alternative tasks.
+
+### [meditation] three friends
+Your journey in stoicism can be sumed up by camping with these three friends. Epictetus is kicking your butt to stir up the flames, Marcus Aurelius giving you wood keep it going, Seneca talking with you and showing you how to use the fire.
+
+### [meditation] philosophy of life > personnal dev
+Why building a philosophy of life is better than collecting personal development advices ? For many reasons. First you go deep into meaning and into defining consciously your goels. Second you ensure consistency to a set of ideas. Last, any freaking conscious time, you can relate to this framework. You can continue to build it or get guidelines from it to go through your current situation. 
+
+### [meditation] framework, computer science analogy
+Advices are like libraries, Philosophy of life is like a framework. A framework has generally some libraries included, others that are not in the core but going well with it, sometimes going so well that it's end up included. For small ambitions a conscious work and eventually few libraries can provide achievement. But for big ambitions, if you avoid the framework you end up in a awfull mess, ending up in negligeance, ending up in a more awfull mess, ending up in a discontinued project. Do you want your life to be a discontinued project ?
+
+### [meditation] avoid wrong actions
+When the moment of a non-stoic action about to be made is suspended. Don't tell yourself "I can't do this". What are you ? A tyrant ? Don't you know better ? Tell yourself instead "I totally can, go ahead, the problem is that it's ridiculous". Then measure quickly what you gain if you do and if you don't, what you lose if you do and if you don't. Never try to use force against yourself. Be as tricky to yourself as you are to others when giving them the confident "I am sure you will do what you think is right", it's not only a trick, it's empowering the reason over all the other forces.
