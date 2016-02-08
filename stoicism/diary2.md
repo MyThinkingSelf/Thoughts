@@ -395,3 +395,33 @@ Advices are like libraries, Philosophy of life is like a framework. A framework 
 
 ### [meditation] avoid wrong actions
 When the moment of a non-stoic action about to be made is suspended. Don't tell yourself "I can't do this". What are you ? A tyrant ? Don't you know better ? Tell yourself instead "I totally can, go ahead, the problem is that it's ridiculous". Then measure quickly what you gain if you do and if you don't, what you lose if you do and if you don't. Never try to use force against yourself. Be as tricky to yourself as you are to others when giving them the confident "I am sure you will do what you think is right", it's not only a trick, it's empowering the reason over all the other forces.
+
+## 07/01/2016
+### [meditation] about meditation
+One day you tell me that the improvement brought by meditation is such that you are under the impression to contemplate a gap between the beast and the man. One other day, you tell me that you don't have time for that. Then, did you lie to me about the beast image ? Or maybe do you like to be a beast ? 
+
+## 11/01/2016
+### [meditation] tracking wrong micro judgements
+Keep the habit to detect this thought "If I do that, People will judge me favorably". This thought may come back 100 times a day without being loud enough to hit your conscience. But you are now attentive, and you can gently grab it when she appears. Capturing her is valuable. If you have nothing more urgent, take the time to correct her "would you rather say that if you do X you will act well" or ask her "if this the deep motive for X, then we will have to talk later in the evenning to figure this problem out". Now, please evaluate what is more urgent than to correct a desire if not to correct another desire, a judgement or an action.
+
+## 27/01/2016
+### [meditation] emotions
+First you let your emotions invade your mental life, take control of your judgement then you come out with some reasons for this impassibility. Then, more than being a weak personn, you blind yourself with dishonesty. 
+
+### [meditation] cold collect what get you forward
+All is about technique, even motivation. Getting motivated is to a large extent a matter of control, of knowing exactly what will stir up your inner fire again. Collect these small petty things that have the ability to restart the engine. One or two quote of Epictetus Maybe. One or two stoic rituals to retrieve control. One or two musics. One or two mental tricks that get you smart. But don't ever again play the brute force role. You are not stronger than your emotions, but you are smarter. To beat emotions by force you were creating stronger emotions. Or even worse, stronger emotions invaded you and you claimed to have invoked them. Whatever, enivred by the overflow of adrenaline and the dreadful spectacle of taking back control in a more than determined fashion you falsely claim that you got better, that you would stay in control for the future. But deep inside you know that this is pure bullshit and you hate yourself for that, for knowing that you will end up the same very shortly. Even worse, after wining this battle you just came up with new emotions to beat. If you have credit, would you take another credit to pay the first one ? Don't play the strong man anymore, play the smart man. Build your framework. A philosophy of life to have a sky of ideas to look at, and smooth tricks to force you to raise your head towards it.
+
+## 04/02/2016
+### [meditation] keeping virtue by considerating end and repetition
+To keep the fire of your virtue alimented, repeat and forge these lines in your heart.
+Get this breathing meaningful such as it is my last, carefully crafted such as I had eternally repeat it. 
+Get this minute meaningful such as it was my last, carefully crafted such as I had eternally repeat it.
+Get this day meaningful such as it was my last, carefully crafted such as I had eternally repeat it.
+Get this momentary struggle meaningful such as it was my last, carefully crafted such as I had eternally repeat it.
+Get this life carefully crafted such as I had eternally repeat it.
+
+### [meditation] What to do with your life
+The first thing to keep in mind is, whatever what you do, you must do with a state of mind following the nature, or to get the precept more close to your heart, to work to attain the excellence of your character. Concerning the rest, focus on what you do best and what in the same time has vertuous outcome for yourself and for the society. Kepping three marks into account may be hard. Keep a qualitative judgement and don't take the risk of being utilitarian if it risks you to lose your grip to virtue. Being utilitarian without virtue can be ill. As epictectus framed, consider precisely what precedes and follows so that you won't change your mind and play multiple roles like a child. Try to play a single role, under the exigence of the stage director constituted by the ruling faculty of your mind.
+
+### [meditation] Treat joy burst as sadness burst
+On event can be joyful. You are not the slave of the valence of events, you want the upper hand. Joy burst, as sadness burst is to be cared of. If you can't avoid to be momentary wrapped by it, you can manage to retrieve serenety. Don't forget that it's momentary, that you can't build a life free from externals if you get enslaved by it. If you don't do this effort, you take the risk of craving for a similar stimulation, or the risk to be weakened facing deception. It's not rare that the thing itself for you are joyful would cause you decept. And, then the small stability you painfully acquired got stolen from you by a siren. "But I feel good, how it could be bad". At what price do you sell your mental stability ? "Would you tell me then to shut momentary joyful feeling". No, but just as mourning, contemplate the spectacle with attention, don't forget that soon this will disapear and you will have to retrieve your calm. Inspect your judgement, what makes you feel this way if not a judgement, my judgement could be wrong. Keep in mind that this joyful event could have been a deceptive one. Contemplate the broader picture and will progressively turn your animal joy into a more human joy. This ability alone belongs to you. 

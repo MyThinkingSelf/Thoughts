@@ -77,4 +77,9 @@ breathing, image chain, planning. (10h38 => Feel good and realized good things y
 ## 8/12/2015
 Breathing (morning, afternoon).
 Get out of situations more properly than usual (not perfectly though)
-
+===================================
+restore loging
+===================================
+## 8/01/2016
+- meditation (breathing + image chain)
+- number of wrongness corrected : ---
