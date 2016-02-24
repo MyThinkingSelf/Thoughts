@@ -13,7 +13,7 @@ I tend to differentiate memorisation with understanding. The latter is the most 
 ## Brief introduction to the method
 
 Loci is the *Latin* for places. Let's suppose you have a shopping list of 10 items to remember. The method consists in three steps :
-- Think of a journey segmented with 10 places (bed, desk, bathroom, hall...). You should be able to picture these places in your mind.
+- Think of a journey segmented with 10 places (your bed, desk, bathroom, hall...). You should be able to picture these places in your mind.
 - Transform each item into a mental image. You can use exaggeration. A fish can be replaced by a monstrous fish, cucumbers by an army of bitter cucumbers.
 - Put your mental images successively into your loci (1 image for 1 loci). You have to **see** it in your mind.
 
