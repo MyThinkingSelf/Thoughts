@@ -1,1 +1,0 @@
-This is an empty space for discussion and inputs. Every pull request will be allowed if in accordance with self-evident good manners.
