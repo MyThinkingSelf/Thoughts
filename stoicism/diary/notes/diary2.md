@@ -459,3 +459,7 @@ I am confronted with insults, hardship, hardchoices. "- who I am ?" "- someone w
 
 ### [meditation] temptations as signs of a lack in proper work beforehand
 Any time you feel tempted to seek pleasure, keep in mind that your current choice is only half of the work as the other half concern the mindset you had to train properly, and wich apparently you don't as you have noisy and nasty thoughts such as uninvited guests at your place. You let doors, windows open, if not a sign at the front of your house and now you struggling to reject properly your guests and got eventually them protesting, which is fair from their side. You can't win a battle only with decisions taking place during the battle field, but with careful preparation of your troups and their weapons.
+
+## 24/02/2016
+### [meditation] self-judgement
+Focusing on self-judging worths ten times more judging others and hundred times more focusing on how people judge. Within a stoic mindset (even in its infancy) self judging is superior on each of the three fundamental dimensions : its implication in your hapiness, the access you have of it, the control you have on it.
