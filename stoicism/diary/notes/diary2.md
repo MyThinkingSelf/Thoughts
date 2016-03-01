@@ -463,3 +463,25 @@ Any time you feel tempted to seek pleasure, keep in mind that your current choic
 ## 24/02/2016
 ### [meditation] self-judgement
 Focusing on self-judging worths ten times more judging others and hundred times more focusing on how people judge. Within a stoic mindset (even in its infancy) self judging is superior on each of the three fundamental dimensions : its implication in your hapiness, the access you have of it, the control you have on it.
+
+### [think] getting rationnal again
+Here is the situation : I stumbled on the rationnal path and I have tasks with different levels of emotionnal barrier (coding task versus administrative task). With the right mindset I could take on the #2 task, but it's idealistic when I am just recovering from the wrong one. What I found is that attacking the task #1 with the coldest rationnality I can achieve put you in the right mindset. After a moment, doing what is at higher stake in my priority list become obvious, but more importantly, not emotionnaly problematic. In cold and calm state I do what I have to do, period. The corrolaire is that it's dubious to try (and sometimes fail) brutal approach (task #2) when smoother techniques are availables.
+
+### [think] proper mindset, then proper advices
+History has engranged tons of advices on how to fight bad habits. I think that they entirely depends on the mindset we have at the moment. If not in the proper mindset, many of them can sound unpracticable or dubious. The first work is to get the proper mindset, then apply advices which goes well while trying to maintain it. Then, I can access the golden rationnal toolbox only if I have the mindset for it. 
+
+### [log] proper mindset, then proper advices - followup
+I asked this on facebook then : 
+
+>I tend to abide to stoic precepts and do my meditations when I have the right attitude (focused, calm, serious, rational, mindful, straight, etc.,) and avoid (or even disregard!) them when I am in a more distracted or excited state. This is a subtle problem as my excited-self is somewhat like a child chasing stimulations and, while admitting that a more composed mindset is preferable, has a limited willpower and reject abrupt approaches such as "go meditate now". On the basis on this observation, I want to better know how to slide from the latter the former mental state with the painless and shortest path. The more I think about it, the more it sounds crucial to me to have practical approaches here.
+Do you relate to this and have your own trick or strategy to retrieve your inner self which is more open to stoicism? Do you think I am chasing an unicorn by looking for a painless path to achieve this? Do ancient stoics had something to say about this? Thanks !
+
+
+My pessimistic bet, related to my experience on the web, is that people will critic the fundation of my question and not answered my question at all. "a dual mind is not sane" or "you should rather avoid finding yourself in the state you want to avoid". I prepared myself to this eventuality to avoid frustration to not get insight  I wanted to get. Everything can go against my plan and it's okay. Moreover, even these can be interesting and helpful if I have the right mindset. I may be critized and it's ok. I ll remember that I am just someone who to try to fix his judgements and his actions and react inline with what I am.
+
+Quick Edit : This was more or less conform to my expectations. Two answers. Both convergent to a "snap of the finger" approach. I should train myself to instantly be "here and now", like by telling myself these exact words. These was interesting inputs though even if I did not get answers going in the direction I suggested. Maybe "I shall die" has also some immediate kick to recover from a distracted mind.
+
+## 01/03/2016
+### [meditation] another yourself, understand him, understand yourself
+When in disagreement with others, whether you have critics or get critized, keep in mind that the other is nothing else than another you. Like, at a moment of your life one instance of you take one path and one the other. What other thinks should not be dismissed nor should it take as something as value, the proper attitude is curiosity, when judgements collide you have an unique opportunity to understand why and then evaluate the basement of your judgement and the judgement of others. Defending or attacking is for beasts, But you, you are aspiring to be wise, so take this moment to be a socrates to yourself or to others. You can lie to yourself saying out loud "I don't care" to things you are struggling to not care, or you can curb your interest for what is truly important and contribute to your progression. 
+
